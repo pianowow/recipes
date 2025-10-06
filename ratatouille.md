@@ -1,6 +1,6 @@
 # Ratatouille
 
-I used to slice everything with a mandolin and roast the Disney movie way. But this more traditional ratatouille was so much simpler and ended up being tastier than anything I'd tried that looked like the other way. I used a San Marzano store-bought organic marinara on the last step (blasphemy I know) but it worked.
+I used to slice everything with a mandolin and roast the Disney movie way. But this more traditional ratatouille was so much simpler and ended up being tastier than anything I'd tried that looked like the other way. I used a store-bought Silver Palate San Marzano blend marinara on the last step (blasphemy I know) but it worked.
 
 1. Prep:
    - Dice in half inch cubes **1 Eggplant**, place in a collander, sprinkle with salt and let sit over the sink to drain for at least 20 minutes.
